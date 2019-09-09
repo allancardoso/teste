@@ -1,0 +1,1 @@
+Desejo atuar como QA na empresa Vector Itc Group que é a minha realidade atual.
